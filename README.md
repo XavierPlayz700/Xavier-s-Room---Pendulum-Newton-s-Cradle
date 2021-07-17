@@ -8,5 +8,6 @@ Enjoy the background art!
 
 - Coding done by Kokichi.
 - Art done by Kokichi.
+- Song : Iroh - Akay (Daycore)
 
 Officially made and published by Kokichi.
